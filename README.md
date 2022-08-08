@@ -4,7 +4,7 @@ Tenho 26 anos, de Salvador (BA), formado em engenharia elétrica pela Universida
 
 Meus hobbies:
 
- * Exercicios físicos
+ * Atividades físicas
  * Ler
  * Programar
  * Jogar xadrez
